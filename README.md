@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Zailinn
-- 👀 I’m interested in cats, music and books and draw a little.
+- 👀 I’m interested in music, books and draw a little.
 - 🌱 I’m currently learning design in the school
 - 📫 How to reach me @memc_d in instagram
 
